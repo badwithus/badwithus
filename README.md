@@ -1,11 +1,4 @@
-<p align="center">
-${\textsf{\color{#d67d23} he / it + puppy neos ! !}}$
-</p>    
-<p align="center">
- ${\textsf{\color{#6fa85c} 16 . fixated on mcr, fob, hazbin, and patrick stump ! talk 2 me abt it !}}$
+
 </p>   
 <p align="center">
-  <img src="https://i.postimg.cc/B63rCBvP/IMG-3400.jpg(https://imgur.com/a/nSHSM4s)" width="350">
-</p>
-<p align="center">
-${\textsf{\color{#4f3e2c} me and gf btw . :3 }}$
+  <img width="400" height="400" alt="Untitled111_20251220181838" src="https://github.com/user-attachments/assets/a4142eeb-45d5-4ba5-9a36-5008eecde1d4" />
