@@ -10,4 +10,7 @@ HOW DO I CENTER THE VIEW COUNT HELPPLS
 </p>
 
 <p align="center">
+<img width="247" height="164" alt="image" src="https://github.com/user-attachments/assets/1b653736-aad3-4316-ae6e-66bede44fb3f" />
+
+<p align="center">
 meeting christian borle 5.23 👀👀
