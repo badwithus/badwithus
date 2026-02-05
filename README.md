@@ -10,4 +10,4 @@ HOW DO I CENTER THE VIEW COUNT HELPPLS
 </p>
 
 <p align="center">
-meeting christian borle 5.23.26 👀👀
+meeting christian borle 5.23 👀👀
