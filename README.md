@@ -14,3 +14,9 @@ HOW DO I CENTER THE VIEW COUNT HELPPLS
 
 <p align="center">
 meeting christian borle 5.23 👀👀
+
+<p align="center">
+i hate radiostatic. the ship itself makes me uncomfy. majority of radiostatic shippers themselves are insufferable and nothing you say will get me to change my feelings on the ship. shippers can int i guess but i don't want it discussed around me
+<p align="center">
+<img width="330" height="330" alt="image" src="https://github.com/user-attachments/assets/c5c05368-705b-408e-bd82-62d8ef470819" />
+
