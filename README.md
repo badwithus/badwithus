@@ -9,7 +9,9 @@
 </p>
 
 <p align="center">
-  MEETING CHRISTIAN BORLE, BRANDON ROGERS AND AMIR TALAI 5.23 IF ANYONE GAF
+  MEETING CHRISTIAN BORLE 5.23 IF ANYONE GAF
+  <p align="center">
+    dni if u still support brandon rogers after the racist shit he did
 <p align="center">
 radiostatic makes me uncomfy. nothing you say will get me to change my feelings on the ship. shippers can int i guess but i don't want it discussed around me. thank you ^__^
 
